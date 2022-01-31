@@ -7,4 +7,3 @@
 - 🤔 I’m looking for help with: Matlab
 - 💬 Ask me about: Anything
 - 😄 Pronouns: He/Him
-- 🎓 Fun fact: J'étudie français 
